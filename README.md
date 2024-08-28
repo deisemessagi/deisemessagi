@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @deisemessagi
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning GTI
-- 💞️ I’m looking to collaborate on technology
+- 💞️ I’m looking to collaborate on TI
 - 📫 How to reach me deisemessagi@gmail.com
 - ⚡ Fun fact: I love watching Asian soap operas
 
